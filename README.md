@@ -10,7 +10,7 @@
 
 ### 😺 What I do 
 
-⚫ I like to use a avriety of useful **computer software** and build **beautiful pages**.
+⚫ I like to use a variety of useful **computer software** and build **beautiful pages**.
 
 ⚫ I am currently a student of **U-tad**
 
